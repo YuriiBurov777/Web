@@ -21,4 +21,4 @@
 
 ![](https://i.pinimg.com/originals/85/82/ba/8582badae538f57e297e463ab3af9580.png))
 
-На этом всё.
+На этом все.
